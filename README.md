@@ -1,0 +1,2 @@
+# premium-granulation-gold-001-gold-granulation-etruscan-je
+Tired of your gold granulation attempts ending in melted disaster or uneven clusters? The Gold Granulation &amp; Etruscan Jewelry Technique Lab turns ancient Etruscan secrets into a repeatable, modern process — no more guesswork, just precise results.  This lab provides a systematic method to master granulation, from creating uniform spheres to fusing
